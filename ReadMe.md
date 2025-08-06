@@ -1,5 +1,5 @@
 # 💫 About Me:
-Programmer
+Programmer, Retro Buck
 
 
 ## 🌐 Socials:
