@@ -1,5 +1,5 @@
 # 💫 About Me:
-Programmer, Retro Buck
+Programmer, ThuoRizer
 
 
 ## 🌐 Socials:
