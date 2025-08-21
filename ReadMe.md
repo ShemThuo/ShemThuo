@@ -1,5 +1,5 @@
 # 💫 About Me:
-Programmer, ThuoRizer
+Programmer, CodeSmith
 
 
 ## 🌐 Socials:
