@@ -1,7 +1,7 @@
 # 💫 About Me:
 Programmer, CodeSmith
 
-Code. #Debug#. Repeat!!😎😏
+Code. #Debug#. Repeat!!😎😏🤯
 
 
 ## 🌐 Socials:
